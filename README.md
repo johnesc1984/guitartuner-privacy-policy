@@ -1,0 +1,1 @@
+# guitartuner-privacy-policy
